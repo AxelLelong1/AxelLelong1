@@ -1,5 +1,5 @@
 # 💫 About Me:
-EPITA - Health & AI Major<br>Sorbonne- INFOMED<br>Projects enjoyer
+EPITA - Health & AI Major<br>Sorbonne- INFOMED<br>Projects enjoyer<br>Twitch Affiliate!
 
 
 ## 🌐 Socials:
